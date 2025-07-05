@@ -1,5 +1,5 @@
 # pontepedo-privacy
-# Política de Privacidad - PontePedo Juegos
+# Política de Privacidad - PontePedo Juegos.
 
 **Última actualización:** 5 de julio de 2025
 
